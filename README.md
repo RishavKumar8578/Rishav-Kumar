@@ -14,6 +14,7 @@
 - 📫 How to reach me **rishavkumar8507@gmail.com**
 
 - 📄 Know about my experiences [https://rishavkumar8578.github.io/My_Portfolio/](https://rishavkumar8578.github.io/My_Portfolio/)
+- 📄 Download CV [https://drive.google.com/file/d/1asETjFAnvMwq70uGcJPSIU1bVVLUQhPN/view)
 
 - ⚡ Fun fact **I am funny**
 
